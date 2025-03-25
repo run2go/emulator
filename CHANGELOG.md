@@ -1,1 +1,1 @@
-> Will be released in February 2025
+> Will be released soon
